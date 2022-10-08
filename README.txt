@@ -1,1 +1,1 @@
-This is a special website for students of WSB University :) 
+Site no longer supported.
